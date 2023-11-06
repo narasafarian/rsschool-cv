@@ -4,10 +4,10 @@
 Tbilisi, Georgia
 
 ##### Contacts
-**E-mail** nara.safaryan@gmail.com
-**Telegram** wind_whistling 
-**GitHub** narasafarian
-**Discord** Nara (@narasafarian)
+* **E-mail** nara.safaryan@gmail.com
+* **Telegram** wind_whistling 
+* **GitHub** narasafarian
+* **Discord** Nara (@narasafarian)
 
 ##### Bio
 I've graduated from Herzen State University in Saint Petersburg, my major is English language and I've been working as an English teacher since then, mainly with B1 - C2 students. I've become very patient, organized and adaptable during my teaching career, improved my speaking and listening skills. As a result of my job, I know not only how to teach but also how to learn which is an essential skill today. 
